@@ -1,1 +1,1 @@
-# lawyar
+# bankruptcy lawyers near me  A bankruptcy lawyer specializes in giving legal advice to a client about bankruptcy, prepares legal documents for the client and represents the client in court. An attorney must hold a law degree and be licensed in the state where they do business. https://srislawyer.com/bankruptcy-lawyers-near-me-va-bankruptcy-lawyer-near-me-va-beach/
